@@ -12,4 +12,4 @@ Ingeniería de Sistemas
 
 Video en Youtube de la segunda entrega: https://www.youtube.com/watch?v=thbKncm3Guw
 
-Video en Youtube de la entrega final: 
+Video en Youtube de la entrega final: https://www.youtube.com/watch?v=DClpcEpMzLc
