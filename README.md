@@ -11,4 +11,4 @@ cc. 1028031733
 Ingeniería de Sistemas
 
 Video en Youtube de la segunda entrega: https://www.youtube.com/watch?v=thbKncm3Guw
-
+Video en Youtube de la entrega final: 
